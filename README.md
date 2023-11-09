@@ -1,1 +1,1 @@
-tugas lx personal diary
+personal diary Rizka
