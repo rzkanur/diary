@@ -1,1 +1,1 @@
-personal diary Rizka
+# personal diary Rizka
