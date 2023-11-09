@@ -1,1 +1,1 @@
-# diary
+tugas lx personal diary
